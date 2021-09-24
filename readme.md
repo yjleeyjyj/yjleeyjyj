@@ -1,5 +1,7 @@
 # Lee Young June
 
+## Currently, now In progress.....
+
 ### Who am I?
 **Introduction & Portfolio : [https://yjleeyjyj.tistory.com/5](https://yjleeyjyj.tistory.com/5)**   
 **More Personalized Introduction : [https://yjleeyjyj.tistory.com/7](https://yjleeyjyj.tistory.com/7)**
